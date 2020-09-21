@@ -5,12 +5,12 @@ Maybe two. Maybe three. Maybe even more. Carl didn't know.
 He was all alone in the jungle at night, lost. He had lost his compass, his bag, his watch, and his whole bag.
 He was panting and his legs were weary.
 He licked his lips, missing the taste of water.
-His stomach rumbled and grumbled.
+His stomach rumbled and grumbled as he was desperate for food.
 He had been desperately looking for a way out of the dense jungle for a long time.
-The night, dark sky made it hard to look around, and the thorny leaves made it hard to walk.
+The night, dark sky made it hard to look around as he could barely see his own hands and the thorny leaves made it hard to walk.
 Carl's legs felt like they were going to give way.
 He slowly collapsed to the ground, helpless and simply exhausted.
 He let out one last breath, and muttered, "Help me..."
-Darkness engulfed him.
+Darkness engulfed him. He needed help and fast or else it might be too late. 
 
 
